@@ -17,4 +17,5 @@ I am a Data Analyst with a strong background in Statistics and Mathematics (BSc 
 
 ## Contact
 - LinkedIn: https://www.linkedin.com/in/nokubonga-mntombi-520b7a222
-
+- Cellphone: +27613590349
+- Email: nokubongamntombi91@gmail.com
